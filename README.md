@@ -1,6 +1,5 @@
 🌱  Hi, I am Zony(real-zony).  
 
-**Sponsor me: [爱发电](https://afdian.net/a/zony-lrc-tools)**
 <hr/>
 
 <picture>
